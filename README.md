@@ -1,3 +1,3 @@
 # AROGYAVANI-
 AI Enhanced BhashaMitra
-Tream Leader - YASH SAWANT 
+Team Leader - YASH SAWANT 
